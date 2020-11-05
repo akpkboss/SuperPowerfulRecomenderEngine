@@ -34,8 +34,10 @@
 - Gangs of Wasseypur
 - Badla
 - Jab Harry Met Sejal 
-- fanaa
-- badhaai ho
-- fukrey
-- patiala house
-- kaminey
+- Fanaa
+- Badhaai Ho
+- Fukrey
+- Patiala House
+- Kaminey
+- Hindi Medium
+- Good Newwz
